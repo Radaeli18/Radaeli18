@@ -1,4 +1,4 @@
-## Oiii eu sou a Giovana Radaeli, aprendiz em soluções digitais
+## Oii eu sou a Giovana Radaeli, aprendiz em soluções digitais na Bosch Campinas
 
 
 <div style="display: inline_block"><br>
